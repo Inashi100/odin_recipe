@@ -1,0 +1,2 @@
+Nutritional value
+Moringa leaf is not just a soup but has health benefits also, it contains a range of antioxidant and anti-inflammatory agents, such as quercetin, which may help protect cardiovascular health to mention but a few.

@@ -1,0 +1,3 @@
+preparatory processes
+<p> Moringa is very easy to prepare in jukun traditional way, firstly the stems in the fresh moringa leaf is picked out, then the leave is washed and steamed the smoked fish is washed and steamed too,then pound a little
+quantity of your locust bean cake, cut your pepper and onions. Pour a little portion of the palm oil in a pot,put the onion and pepper allow it to fry for 10seconds then add small water, add the powdered locust bean cake,the spices,the fish and the moringa leaf, allow it to boil for about 5-10mins before setting down for the leaves to soften up as desired.
